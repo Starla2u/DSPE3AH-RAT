@@ -21,4 +21,4 @@ Functions:
 
 Get it: Blackclone24@proton.me
 Only for Legal Purposes... ;)
-
+I am not responsible for any malicious actions...
