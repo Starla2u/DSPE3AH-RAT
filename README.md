@@ -20,5 +20,5 @@ Functions:
 - I will add almost every other function you want.
 
 Get it: Blackclone24@proton.me
-Only for Legal Purposes... ;)
+Only for Legal Purposes...
 I am not responsible for any malicious actions...
